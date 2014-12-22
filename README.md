@@ -36,9 +36,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Pauls crovvne of reioycing. Or The maner how to heare the word with profit. By Thomas Granger preach
+
+1. TO THE WORSHIPFVL and vertuous Lady, the Lady, IOAN ALTHAM, temporall happineſſe, and eternall bleſſedneſſe.
+
 #####Body#####
-Pauls crovvne of reioycing. Or The maner how to heare the word with profit. By Thomas Granger preach
+
+1. PAVLS CROVVNE OF Reioycing.
+
 **Types of content**
 
   * There are 42 **drama** parts! This is **prose drama**.
